@@ -1,0 +1,5 @@
+-  Hi, I’m @basic0bee
+-  I’m interested in bee swarm simulator
+-  I’m currently learning things
+-  Pronouns: He/Him
+-  Fun fact: i like bee swarm simulator =>
